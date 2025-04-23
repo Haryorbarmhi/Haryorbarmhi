@@ -2,7 +2,7 @@
 - 👀 I’m interested in WhatsApp bot 
 - 🌱 I’m currently learning nothing 😓
 - 💞️ I’m looking to collaborate on Whatsapp bot
-- 📫 How to reach me +2349169216946
+- 📫 How to reach me +2349169216943
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
   
